@@ -1,2 +1,2 @@
 # hello-world
-JUst the beginning of my experience with github
+Hey there! Love to unravle mysteries of economics and human psyche
